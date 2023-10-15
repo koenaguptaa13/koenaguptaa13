@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with homework
 - 💬 Ask me about my favorite tv show
 - 📫 How to reach me: my phone number
-- 😄 Pronouns: she/her
+- 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I love to run and have ran a half marathon before
 --> 
